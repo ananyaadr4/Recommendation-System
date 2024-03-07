@@ -1,4 +1,4 @@
-Tream Members
+Team Members
 
 KADAM SIDDHARTH GAUTAM - 202318015
 
